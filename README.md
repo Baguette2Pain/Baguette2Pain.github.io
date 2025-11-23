@@ -1,8 +1,14 @@
 <img width="149" height="186" alt="pp" src="https://github.com/user-attachments/assets/54848193-623b-4106-a869-65fcb137b05a" />
 
 ## Socials
+
 *Discord*: baguette2pain
+
 *Youtube*: https://www.youtube.com/@Baguette2Pain
+
+*Twitch*: https://www.twitch.tv/baguette2pain_
+
+*Steam*: https://steamcommunity.com/id/Baguette2Pain_/
 
 ## PC Rythme Games Profiles
 
@@ -85,3 +91,9 @@ Up to 9 if stam chart
 *Jubeat*
 
 Up to 9
+
+## Other Games
+
+*Chess*: https://lichess.org/@/Baguette2Paing or https://www.chess.com/member/baguette2paing
+
+Hot garbage
