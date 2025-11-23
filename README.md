@@ -4,9 +4,12 @@
 
 *Discord*: baguette2pain
 
+
 *Youtube*: https://www.youtube.com/@Baguette2Pain
 
+
 *Twitch*: https://www.twitch.tv/baguette2pain_
+
 
 *Steam*: https://steamcommunity.com/id/Baguette2Pain_/
 
