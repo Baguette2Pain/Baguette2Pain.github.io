@@ -20,13 +20,13 @@ osu!mania: 4k hatter, other keymodes enjoyer, former farmer
 
 *BMS* (beatoraja): https://mocha-repository.info/player.php?id=13148
 
-Controller 2P + Mirror player, 6th DAN
+Controller 2P + Mirror player, 6th DAN (GENOCIDE 2018)
 
 -----------------------------------------------------------------------
 
 *Unnamed Sound Voltex Clone*: https://boku.tachi.ac/u/Baguette2Pain/
 
-Pico Voltex player
+Pico Voltex player (Dan 8 on actual cab)
 
 -----------------------------------------------------------------------
 
@@ -54,4 +54,34 @@ Go play pulsus ! (baguette2pain)
 
 *Quaver*: https://quavergame.com/user/95782?mode=2
 
-## Arcade Rythme Games Profiles
+## Arcade Rythme Games Profiles (Atom City, Lille, France)
+
+*Taiko no Tatsujin*
+
+Stupid non alternating player, up to (Ura) Oni 9*, DAN 3
+
+-----------------------------------------------------------------------
+
+*IIDX*
+
+SP: 2P + Mirror player, up to Another 10, DAN 7
+
+DP: Up to Normal 8, almost DAN 1
+
+-----------------------------------------------------------------------
+
+*Pop'n Music*
+
+Bad acc, up to Lvl 37
+
+-----------------------------------------------------------------------
+
+*ITG*
+
+Up to 9 if stam chart
+
+-----------------------------------------------------------------------
+
+*Jubeat*
+
+Up to 9
