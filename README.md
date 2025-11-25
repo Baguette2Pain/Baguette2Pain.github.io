@@ -29,7 +29,7 @@ osu!mania: 4k hatter, other keymodes enjoyer, former farmer
 
 *BMS* (beatoraja): https://mocha-repository.info/player.php?id=13148
 
-Controller 2P + Mirror player, 6th DAN (GENOCIDE 2018)
+Controller 2P + Mirror player, 7th DAN (GENOCIDE 2018)
 
 -----------------------------------------------------------------------
 
