@@ -29,7 +29,7 @@ osu!mania: 4k hatter, other keymodes enjoyer, former farmer
 
 *BMS* (beatoraja): https://mocha-repository.info/player.php?id=13148
 
-Controller 2P + Mirror player, 7th DAN (GENOCIDE 2018)
+Controller 2P + Mirror player, 8th DAN (GENOCIDE 2018)
 
 -----------------------------------------------------------------------
 
@@ -73,15 +73,15 @@ Stupid non alternating player, up to (Ura) Oni 9*, DAN 3
 
 *IIDX*
 
-SP: 2P + Mirror player, up to Another 10, DAN 7
+SP: 2P + Mirror player, 9th Dan
 
-DP: Up to Normal 8, almost DAN 1
+DP: Up to Normal 8, 1st Dan
 
 -----------------------------------------------------------------------
 
 *Pop'n Music*
 
-Bad acc, up to Lvl 37
+Bad acc, Lvl 41 clear / 45 play
 
 -----------------------------------------------------------------------
 
