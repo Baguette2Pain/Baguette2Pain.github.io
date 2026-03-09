@@ -21,7 +21,7 @@ osu!std: Stinky 6 digit tablet player, f this
 
 osu!taiko: Slowly learning to stream, fun atm, KDDK
 
-osu!catch: Stinky EZ main, game bad
+osu!catch: Stinky EZ main, game bad but learning
 
 osu!mania: 4k hatter, other keymodes enjoyer, former farmer
 
@@ -35,7 +35,7 @@ Controller 2P + Mirror player, 8th DAN (GENOCIDE 2018)
 
 *Unnamed Sound Voltex Clone*: https://boku.tachi.ac/u/Baguette2Pain/
 
-Pico Voltex player (Dan 8 on actual cab)
+Pico Voltex player (Dan 8 on actual cab), can play some 17s
 
 -----------------------------------------------------------------------
 
@@ -59,9 +59,17 @@ Go play pulsus ! (baguette2pain)
 
 *Etterna*: https://etternaonline.com/users/Baguette2Pain
 
+Playing more and more cause f osu!mania 4k
+
 -----------------------------------------------------------------------
 
 *Quaver*: https://quavergame.com/user/95782?mode=2
+
+-----------------------------------------------------------------------
+
+*Clone Hero*:
+
+Can play some Expert 3s, rarely play seriously
 
 ## Arcade Rythme Games Profiles (Atom City, Lille, France)
 
@@ -75,19 +83,19 @@ Stupid non alternating player, up to (Ura) Oni 9*, DAN 3
 
 SP: 2P + Mirror player, 9th Dan
 
-DP: Up to Normal 8, 1st Dan
+DP: Mostly 4/5, 1st Dan
 
 -----------------------------------------------------------------------
 
 *Pop'n Music*
 
-Bad acc, Lvl 41 clear / 45 play
+Bad acc, Lvl 42 clear / 45 play
 
 -----------------------------------------------------------------------
 
-*ITG*
+*ITG*: https://www.groovestats.com/index.php?page=profile&id=195162
 
-Up to 9 if stam chart
+Just starting, can play 10s on singles
 
 -----------------------------------------------------------------------
 
