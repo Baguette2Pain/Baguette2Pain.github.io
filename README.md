@@ -29,7 +29,7 @@ osu!mania: 4k hatter, other keymodes enjoyer, former farmer
 
 *BMS* (beatoraja): https://mocha-repository.info/player.php?id=13148
 
-Controller 2P + Mirror player, 8th DAN (GENOCIDE 2018)
+Controller 2P + Mirror player, 9th DAN (GENOCIDE 2018)
 
 -----------------------------------------------------------------------
 
@@ -75,7 +75,7 @@ Can play some Expert 3s, rarely play seriously
 
 *Taiko no Tatsujin*
 
-Stupid non alternating player, up to (Ura) Oni 9*, DAN 3
+Stupid non alternating player, up to (Ura) Oni 9*, DAN 5 ma god is that hard
 
 -----------------------------------------------------------------------
 
@@ -83,19 +83,19 @@ Stupid non alternating player, up to (Ura) Oni 9*, DAN 3
 
 SP: 2P + Mirror player, 9th Dan
 
-DP: Mostly 4/5, 1st Dan
+DP: Mostly 6/7, 2nd Dan
 
 -----------------------------------------------------------------------
 
 *Pop'n Music*
 
-Bad acc, Lvl 42 clear / 45 play
+Bad acc, Lvl 44 clear !!!
 
 -----------------------------------------------------------------------
 
 *ITG*: https://www.groovestats.com/index.php?page=profile&id=195162
 
-Just starting, can play 10s on singles
+Just starting, can play 10s on singles, stam player
 
 -----------------------------------------------------------------------
 
