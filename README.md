@@ -13,6 +13,8 @@
 
 *Steam*: https://steamcommunity.com/id/Baguette2Pain_/
 
+*Retroachievements*: https://retroachievements.org/user/Baguette2Pain
+
 ## PC Rythme Games Profiles
 
 *osu!*: https://osu.ppy.sh/users/11818585
