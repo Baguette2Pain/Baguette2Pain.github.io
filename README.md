@@ -37,7 +37,7 @@ Controller 2P + Mirror player, 9th DAN (GENOCIDE 2018)
 
 *Unnamed Sound Voltex Clone*: https://boku.tachi.ac/u/Baguette2Pain/
 
-Pico Voltex player (Dan 8 on actual cab), can play some 17s
+Pico Voltex player (Dan 9 on actual cab), can play 17s
 
 -----------------------------------------------------------------------
 
@@ -77,7 +77,8 @@ Can play some Expert 3s, rarely play seriously
 
 *Taiko no Tatsujin*
 
-Stupid non alternating player, up to (Ura) Oni 9*, DAN 5 ma god is that hard
+Sole TnT player in the arcade lmao
+DAN 6 (Dan-i-dojo 2022)
 
 -----------------------------------------------------------------------
 
@@ -85,19 +86,25 @@ Stupid non alternating player, up to (Ura) Oni 9*, DAN 5 ma god is that hard
 
 SP: 2P + Mirror player, 9th Dan
 
-DP: Mostly 6/7, 2nd Dan
+DP: LIFT PLAYER mhhh. Mostly 8s, 6th Dan
 
 -----------------------------------------------------------------------
 
 *Pop'n Music*
 
-Bad acc, Lvl 44 clear !!!
+Good acc, can clear 45s
 
 -----------------------------------------------------------------------
 
 *ITG*: https://www.groovestats.com/index.php?page=profile&id=195162
 
 Just starting, can play 10s on singles, stam player
+
+----------------------------------------------------------------------
+
+*Guitadora*: 6k haha 
+
+*Drumania*: 4.5k game is hard
 
 -----------------------------------------------------------------------
 
